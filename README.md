@@ -1,1 +1,1 @@
-# SomePacificWind.github.io
+# somepacificwind.github.io
